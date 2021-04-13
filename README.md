@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @antoine-peyrard
-- 🌱 I’m currently learning something witch is secret !
+- 🌱 I’m currently learning something witch is a secret !
